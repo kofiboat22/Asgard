@@ -5,3 +5,7 @@ Rainbow Brigde
 Heimdall >> keeper of the rainbow brigde
 
 Thor >> Prince of Asgard
+
+The nine realms laugh at us
+
+father we need u now
